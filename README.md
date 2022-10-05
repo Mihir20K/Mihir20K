@@ -1,6 +1,6 @@
 # Hey there 👋
 
-I am Mihir Konduskar, an web development enthusiast. I love making new stuff and being part of communities. 🎁
+I am Mihir Konduskar, a web development enthusiast. I love making new stuff and being part of communities. 🎁
 
 ### 🚹 Basic Information
 
